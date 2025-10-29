@@ -1,5 +1,5 @@
 Hi, I’m @Oluwafunso56 👋
-CO Founder of  DatechX | Data Analyst | Excel & Power BI Trainer | Dashboard Expert
+CO Founder of  DatechX Solutions | Data Analyst | Excel & Power BI Trainer | Dashboard Expert
 
 👀 I’m interested in: Data storytelling, business intelligence, financial modeling, and tech education.
 
